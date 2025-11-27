@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **deskmen112@gmail.conm**
 
-- ⚡ Fun fact **i think i am gay would you like it fuk me**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/muhammadayaz001" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="muhammadayaz001" height="30" width="40" /></a>
